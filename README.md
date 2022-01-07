@@ -7,7 +7,7 @@ I'm a first-year CS student and I'm currently in the process of exploring my dif
 
 Outside of school and projects, I'm obsessed with learning (spoken) languages. I speak 6 (English, French, Spanish, Italian, German and Cantonese) at varying levels and it's what I spend most of my free time doing. 🗣
 
-Feel free to reach out and connect on [LinkedIn](www.linkedin.com/in/jordan-lipson)!
+Feel free to reach out and connect on [LinkedIn](https://linkedin.com/in/jordan-lipson)!
 
 
 <!--
