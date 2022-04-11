@@ -2,7 +2,7 @@
 
 I'm a first-year CS student with a love for UX/UI + product design. 
 
-- 👩🏻‍🎨  I have a **personal website** in the works
+- 👩🏻‍🎨  I have a personal website in the works
 - 🤳🏻  I'm working as a UX/UI intern at Kynza this summer
 - 👩🏻‍💻  Catch me at hackathons!
 
